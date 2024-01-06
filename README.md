@@ -8,4 +8,3 @@ It is prohibited to use, copy, reproduce, modify, publish or represent all or pa
 Sanatçı / zanaatkar: Teoman Ahmet Kefkir
 
 Sanatçı / zanaatkar tarafından önceden verilmiş yazılı bir izin bulunmaksızın, oluşturulmuş olan gitar modelleri, fotoğrafları, planları veya tasarımlarının tamamının veya bir kısmının kullanılması, kopyalanması, çoğaltılması, değiştirilmesi, yayınlanması, temsil edilmesi, yasaktır.
--
